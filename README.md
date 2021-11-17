@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @cdbs-source
-- 👀 I’m interested in troson me
-- 🌱 I’m currently learning a estafar a idiotas como tú
+- 👀 I’m interested in cobelpvp
+- 🌱 I’m currently learning to be a goat practice manager :V
 - 💞️ I’m looking to collaborate on brazzers
-- 📫 How to reach me Cold#5939
+- 📫 How to reach me Seven#2815
 
 <!---
 cdbs-source/cdbs-source is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
